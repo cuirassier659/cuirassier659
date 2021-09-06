@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @cuirassier659
-- 📫 How to reach me aligasimli305@gmail.com
+- 📫 How to reach me: aligasimli305@gmail.com
